@@ -1,4 +1,5 @@
-# 🚀 Nex Loader
+# 🚀 Nex Loader (itz_vxtz on insta)
+
 
 <p align="center">
   <img src="https://img.shields.io/badge/Platform-Windows-blue?style=for-the-badge">
