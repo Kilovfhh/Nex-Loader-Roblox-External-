@@ -99,5 +99,5 @@ When reporting a problem, include:
 ---
 
 <p align="center">
-Made with ❤️ by <b>Kilo</b>
+Made with ❤️ by <b>Kilo (aka itz_vxtx)</b>
 </p>
