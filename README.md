@@ -1,4 +1,5 @@
 # 🚀 Nex Loader (itz_vxtz on insta)
+## MENU IS OUTDATED! UPDATE COMMING SOON!
 EXTERNAL IS OUTDATED AT THE MOMENT - BEING FIXED/UPDATED | 06.29.26 @ 7:56pm
 
 <p align="center">
